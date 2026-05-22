@@ -10,6 +10,10 @@
 <p align="center"> 
 
 
+<p align="center"> <img src=https://pixels.crd.co/assets/images/gallery23/08f1cd02.gif?v=29416114"> <b> Au-DHD + Dyslexia, please be patient </b>  <img src="https://pixels.crd.co/assets/images/gallery23/08f1cd02.gif?v=29416114"></p>
+<p align="center"> 
+
+
 <p align="center"> You may take inspo from my ponies, but please dont fully copy them, ty </p>
 <p align="center"> <a href="https://shadowyfigure.straw.page/snfi2">My DNFI / BYF</a> <img src="https://pixels.crd.co/assets/images/gallery08/2e9cc8b7.gif?v=29416114"> <a href="https://professorvenomous.straw.page/">Strawpage</a> <img src="https://pixels.crd.co/assets/images/gallery15/a61c85ab.gif?v=29416114"> <a href="https://shadowyfigure.straw.page/">Yumeship Info</a>  <img src="https://pixels.crd.co/assets/images/gallery16/d5f57095.gif?v=29416114"> <a href="https://linktr.ee/cyanidefish">All My links / Socials</a> </p> 
 
